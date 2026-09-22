@@ -2,9 +2,9 @@
 
 just for people whose school blocked all eaglercraft websites
 
-# why does it say "scrambled_egg3" at the top?
+# why does it say "raymuncito" at the top?
 
-thats my username :D
+thats my username
 
 # where did ArchMC go?
 
